@@ -1,1 +1,1 @@
-https://github.com/YoFame/zakrivayuschiy-teg-ad
+https://github.com/RiSenC/zakrivayuschiy-teg-ad
